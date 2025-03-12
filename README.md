@@ -6,3 +6,6 @@
 [Ссылка на отчет](https://disk.yandex.ru/i/s3kvtXFP0XZJvw)
 
 
+## Лабораторная работа № 2
+
+[Ссылка на отче](https://disk.yandex.ru/i/NIn4ZO8RBmhYaA)
