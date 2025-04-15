@@ -13,3 +13,8 @@
 * [Lab2-intro](https://github.com/VanDerVanden/lab2-intro)
 
 * [lab2--markdown-syntax)](https://github.com/VanDerVanden/lab2--markdown-syntax)
+
+
+## Лабораторная работа № 2
+
+[Ссылка на отче](https://disk.yandex.ru/d/g4Ec3jE_cA6YMA)
