@@ -22,34 +22,34 @@
 
 ## Лабораторная работа № 4
 
-[Ссылка на отче](https://disk.yandex.ru/d/g4Ec3jE_cA6YMA)
+[Ссылка на отче](https://disk.yandex.ru/d/9lr3N9JgpLMIBg)
 
 
 ## Лабораторная работа № 5
 
-[Ссылка на отче](https://disk.yandex.ru/d/g4Ec3jE_cA6YMA)
+[Ссылка на отче](https://disk.yandex.ru/d/G20BXASlBgJjDQ)
 
 
 ## Лабораторная работа № 6
 
-[Ссылка на отче](https://disk.yandex.ru/d/g4Ec3jE_cA6YMA)
+[Ссылка на отче](https://disk.yandex.ru/d/YRuuDGCdrrq7Aw)
 
 
 ## Лабораторная работа № 7
 
-[Ссылка на отче](https://disk.yandex.ru/d/g4Ec3jE_cA6YMA)
+[Ссылка на отче](https://disk.yandex.ru/d/PHaRVZkswR24Yw)
 
 
 ## Лабораторная работа № 8
 
-[Ссылка на отче](https://disk.yandex.ru/d/g4Ec3jE_cA6YMA)
+[Ссылка на отче](https://disk.yandex.ru/d/ng7sS6kKFJHK1A)
 
 
 ## Лабораторная работа № 9
 
-[Ссылка на отче](https://disk.yandex.ru/d/g4Ec3jE_cA6YMA)
+[Ссылка на отче](https://disk.yandex.ru/d/XOCCV4X7-7Xugg)
 
 
 ## Лабораторная работа № 10
 
-[Ссылка на отче](https://disk.yandex.ru/d/g4Ec3jE_cA6YMA)
+[Ссылка на отче](https://disk.yandex.ru/d/mJ-eRQ6F3_-YDQ)
